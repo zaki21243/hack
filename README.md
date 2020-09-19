@@ -1,0 +1,2 @@
+# hack
+Gunakan dengan baik
